@@ -44,7 +44,9 @@ brasiliano e radioattivo.
 
 Purtroppo non possiamo inserire niente di radioattivo nel liquore
 sennò rischiamo di diventare come lui, ma almeno possiamo sostituire
-il banale zucchero raffinato con un ben più esotico muscovado.
+il banale zucchero raffinato con un ben più esotico muscovado. In caso
+si abbia difficoltà nel reperirlo ci si può affidare all'ottimo zucchero
+di canna integrale ecosolidale venduto alla Coop.
 
 Questo dona all'amaro un sentore affine al rum.
 
